@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @aidanpreston08
+- 👀 I’m interested in Gaming
+- 📫 How to reach me aidanpreston@icloud.com
